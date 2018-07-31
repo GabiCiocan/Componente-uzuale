@@ -1,0 +1,1 @@
+cod pentru o navigare monocroma, fixa, in partea superioara

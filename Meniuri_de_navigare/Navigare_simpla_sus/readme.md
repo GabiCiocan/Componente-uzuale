@@ -1,0 +1,1 @@
+cod pentru o navigare simpla in partea superioara
