@@ -1,0 +1,1 @@
+**cod pentru un subsol adeziv creat prin metoda pozitionarii absolute**

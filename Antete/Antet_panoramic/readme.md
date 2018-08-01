@@ -1,0 +1,1 @@
+**cod pentru un antet panoramic pentru un articol**

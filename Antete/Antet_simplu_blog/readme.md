@@ -1,0 +1,1 @@
+**cod pentru un antet simplu pentru un blog**
